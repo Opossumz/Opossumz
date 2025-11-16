@@ -3,6 +3,10 @@
 ㅤㅤ,ㅤㅤㅤ" watch out! " scraps ref 😣 ,
 
 
+
+
+
+
 💌 ㅤㅤ. about me / interests <3 , forsaken,
  dandys world, die of death, ninah, 
 
