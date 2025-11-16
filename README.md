@@ -26,5 +26,5 @@
 weirdos dni ^_^ .
 
 
-
+i allow c+h all the time, even if im with friends! ,,^_^,,
     
