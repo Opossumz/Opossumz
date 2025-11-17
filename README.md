@@ -41,5 +41,5 @@ i allow c+h all the time, even if im with friends! ,,^_^,,
 
 
 
-https://github.com/user-attachments/assets/0ef493eb-bdd4-4016-9c0a-81a4809254d7
+https://github.com/user-attachments/assets/0ef493eb-bd4-4016-9c0a-81a4809254d7
 
