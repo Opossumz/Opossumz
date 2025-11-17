@@ -39,8 +39,3 @@ i allow c+h all the time, even if im with friends! ,,^_^,,
 
 
 
-
-
-
-
-if i have dni in my name then, please do not interact : <
