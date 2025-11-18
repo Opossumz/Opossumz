@@ -1,6 +1,5 @@
 *ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤ   ㅤㅤㅤㅤㅤㅤㅤㅤ*
-
-"i loved You, i loved You i loved you, it's true!"
+    "love me, love me, Say that You love me!"
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤ
