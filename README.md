@@ -18,5 +18,8 @@ c+h comf
 
 
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
+
 
 interact w me pls i need friends Ó⁠╭⁠╮⁠Ò!!
