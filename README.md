@@ -15,3 +15,6 @@ read strawpage for more info about me :)
 
 
 c+h comf
+
+
+You can interact w me Even if i'm w friends! (⁠灬⁠º⁠‿⁠º⁠灬)
